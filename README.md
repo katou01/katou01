@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @megutou
+- 👀 I’m interested in discord bot and learning new programing language
+- 🌱 I’m currently learning Python, C#
+- 📫 You can reach me via megutou@akio.ga
