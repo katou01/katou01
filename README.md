@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @katou01, a big weebs come from Vietnam
-- 👀 I’m interested in learning new programing language and playing with ara~ara onee-san
+- 👀 I’m interested in learning new programing language and playing with some ara~ara onee-san
 - 🌱 I’m currently learning how to be a good weebs OwO
 - 📫 You can reach me via katou@akio.ga
